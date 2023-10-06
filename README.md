@@ -1,5 +1,5 @@
-Token Modernity>-
-currently valued at $40 as an asset
+Token Modernity
+currently valued at $40 as a digital asset
  purpose: is to control volatility by having a stable value as an asset
  its the official token on MDN eShop, and TMD exchange
 <for more information contact us through email:modcryptocart@protonmail.com, or whats app: , telegram:https://t.me/+eT8X6fzuRk1hMjc8
